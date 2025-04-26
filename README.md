@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... (You Know The Word)
 - 📫 How to reach me ... (No)
 - 😄 Pronouns: He
-- ⚡ Fun fact: I Dont Like Coffee And Egg (I Never Liked Coffee BUt I Like Coffee With Milk. When I Was 4 I Stopped To Like Egg)
+- ⚡ Fun fact: I don't like coffee and eggs (I've never liked coffee, but I like coffee with milk. When I was 4 years old, I stopped liking eggs)
 
 <!--Piquinh0--!>
 
